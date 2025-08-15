@@ -1,4 +1,4 @@
-# 🗣️ 180-Day Communication Challenge Log
+# 🗣️ 138-Day Communication Challenge Log
 
 ## 📅 Started: June 22, 2025
 
